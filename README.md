@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Adryatico
+- 👀 I’m interested in travel, motorcycles, plants.
+- 🌱 I’m currently learning from,life.
+- 💞️ I’m looking to collaborate on this world, both virtual and physical.
+- 📫 I´m in instagram also as a @adryatico
+-     Made in Buenos Aires, Argentina.
